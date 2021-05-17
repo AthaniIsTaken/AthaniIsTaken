@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AthaniIsTaken
+- 👀 I’m interested in learning to code
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on nobody for nw
+- 📫 How to reach me: you can't, i have the highground
